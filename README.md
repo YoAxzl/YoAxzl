@@ -1,0 +1,5 @@
+- 👋 Hola! Soy @Axzlz
+- 👀 Estoy interesado en HCF servers
+- 🌱 Estoy aprendiendo PhP & Java
+- 💞️ Estoy Colaborando con CreedPvP & VitalHCF
+- 📫 Como contactarme Axzlzz#8542 (Discord)
